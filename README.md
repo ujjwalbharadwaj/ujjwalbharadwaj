@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **everything.**
 
-- 📫 How to reach me **ujjwalbhardwaj5809@gmail.com**
+- 📫 How to reach me **https://linktr.ee/ujjwalbhardwaj**
 
 - ⚡ Fun fact **I love to listen to music and travel.**
 
